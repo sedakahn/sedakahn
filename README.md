@@ -5,7 +5,7 @@
 - I'm also the author of  _A Very Unofficial Guide to the K-1 Visa_, a book born of my experiences navigating immigration to the United States during a time of war. ✈️ 
 - Today I live in California with my husband, German-American entrepreneur  [Carson Kahn](https://github.com/carsonkahn-external), where we’re known to enjoy mushroom jerky, binging _John Oliver_, and the occasional game of Rummikub. 🀄
 
-#### 📨 I enjoy [working](https://linkedin.com/in/sedakahn) with similarly passionate & dedicated people — if that's you or your team, get in touch with me: [www.sedakahn.com](https://sedakahn.com) | [seda@sedakahn.com](mailto:seda@sedakahn.com?subject=Your%20GitHub%20Profile)
+#### 📨 I enjoy [working](https://linkedin.com/in/sedakahn) with similarly passionate & dedicated people — if that's you or your team, get in touch with me: [www.sedakahn.com](https://sedakahn.com) | [seda@sedakahn.com](mailto:seda@sedakahn.com?subject=Your%20GitHub%20Profile) 
 
 
 <!---
